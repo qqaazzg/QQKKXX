@@ -1,6 +1,7 @@
 # QQKKXX
 
 Авторы - [QQAAZZ CREAM GROUP](https://vk.com/qqaazzgroup).
+
 Сайт - [QQKKXX](https://qqaazzg.github.io/QQKKXX/).
 
 # Screenshots
